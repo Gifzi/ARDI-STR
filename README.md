@@ -1,1 +1,1 @@
-# ARDI-STR
+# SCRIPTNYA BANG THOMZ - bukan punya gw
